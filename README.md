@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Urimans15
+- Mint and Kali Linux fan, and a project developer.
+- I’m currently learning how to use kali and learning also Linux distro development.
+- I’m looking to collaborate on Linux's future.
+- If you have interest to colaborate to my project contact with me with at: Thefireballproject@protonmail.com.
+- Searching animators with free time able to colaborate with the project.
